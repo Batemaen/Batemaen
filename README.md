@@ -2,7 +2,7 @@
 - 👀 I’m interested in a lot of things
 - 🌱 I’m currently learning SQL, Python, and some other languages 
 - 💞️ I’m looking to collaborate when I am ready
-- 📫 How to reach me ...
+- 📫 How to reach me pjay54629@gmail.com
 - 😄 Pronouns: lol
 - ⚡ Fun fact: Our brains are constantly eating themselves.
 
