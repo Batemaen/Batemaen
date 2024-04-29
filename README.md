@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning SQL, Python, and some other languages 
 - 💞️ I’m looking to collaborate when I am ready
 - 📫 How to reach me pjay54629@gmail.com
-- 😄 Pronouns: lol
+- 😄 Pronouns: nunya/bizness
 - ⚡ Fun fact: Our brains are constantly eating themselves.
 
 <!---
